@@ -1,2 +1,2 @@
 # LGAPV
-Legacy APV
+APV van Legacy Roleplay!
